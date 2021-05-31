@@ -1,7 +1,7 @@
 ### Sup
 I'm !mb!r, 20 years old  
 Blockchain and CV developer
-I programming on Python and training YOLO
+I'm programming on Python and training YOLO
 ###
 Contact via [Telegram](https://t.me/pussyliker)   
 
